@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hello, I'm Eren. I am 14 years old. I like to take care of the software.<br><br>🎥 Youtube: https://youtube.com/@erenzengin<br><br>📩 How to reach me: erenzengin.sponsorluk@gmail.com
+👋 Hello, I'm Eren. I am 14 years old. I like to take care of the software.<br><br>🎥 Youtube: https://youtube.com/@<br><br>📩 How to reach me: erenzengin.sponsorluk@gmail.com
 
 
 ## 🌐 Socials:
